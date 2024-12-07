@@ -29,11 +29,11 @@ I’m Valeria, a tech enthusiast exploring how technology can make organizations
 👩🏽‍🦱 Passionate about curly hair care  
 🌐 Exploring the Web3 space  
 🤸‍♀️ Stretching for flexibility and balance  
-🐾 Adoring my kitten Plozza  
+🐾 Adoring my kitten Ploozza  
 
 ## 📬 Let’s connect!  
 
-Twitter: [@vacxxhe](https://twitter.com/vacxxhe)  
+Twitter: [@vacxxhe](https://twitter.com/vaccxhe)  
 Email: [vortmon@gmail.com](mailto:vortmon@gmail.com)  
 
 ⭐️ Thanks for visiting my profile! Let’s build something amazing together.  
