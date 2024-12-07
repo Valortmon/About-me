@@ -33,7 +33,7 @@ I’m Valeria, a tech enthusiast exploring how technology can make organizations
 
 ## 📬 Let’s connect!  
 
-Twitter: [@vacxxhe](https://twitter.com/vaccxhe)  
+X: [@vacxxhe](https://twitter.com/vaccxhe)  
 Email: [vortmon@gmail.com](mailto:vortmon@gmail.com)  
 
 ⭐️ Thanks for visiting my profile! Let’s build something amazing together.  
