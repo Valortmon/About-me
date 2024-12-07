@@ -28,7 +28,7 @@ I’m Valeria, a tech enthusiast exploring how technology can make organizations
 🥥 Obsessed with the coconut scent  
 👩🏽‍🦱 Passionate about curly hair care  
 🌐 Exploring the Web3 space  
-🤸‍♀️ Stretching for flexibility and balance  
+🤸🏽‍♀️ Stretching for flexibility and balance  
 🐾 Adoring my kitten Ploozza  
 
 ## 📬 Let’s connect!  
