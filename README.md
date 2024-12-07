@@ -1,4 +1,4 @@
-# 👋🏽 Hi there! I'm Valeria Ortiz Montiel  
+# 👋🏽 Hi there! I'm Val
 
 🎓 5th-semester student in Information Technologies in Organizations  
 🌍 Living and learning in Veracruz, Mexico  
